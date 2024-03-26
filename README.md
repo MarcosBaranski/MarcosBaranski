@@ -1,5 +1,5 @@
 Oi, eu ou o Marcos, sou aluno do Colégio Estadual Cívico-Militar Padre Carlos Zelesny
-![](https://2img.net/h/i1086.photobucket.com/albums/j451/Ricardo_Freitas/Ferromodelismo/Minhas%20Pinturas/ALL/SD40-2_9463%20ALL%20-%20Bachmann/SD40-29463ALL_Bachmann_img01JPG.jpg)
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.flickr.com%2Fphotos%2F143208309%40N08%2F50409316842&psig=AOvVaw29RhXiJHlhkWOiGlxT7k2N&ust=1711552133935000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCPjP_duakoUDFQAAAAAdAAAAABAE
 Locomotiva EMD SD40-2 América Latina Logítica
 
 Ouça minha músic favorita no [youtube](https://www.youtube.com/watch?v=zA52uNzx7Y4)
